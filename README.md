@@ -8,11 +8,11 @@ Skilled in building interactive dashboards, automating repetitive reporting task
 
 Passionate about solving problems through data and continuously exploring ways to improve business processes through analytics
 
-👨‍💻 ###All of my projects are available at https://peerlist.io/tss921091
+👨‍💻 All of my projects are available at https://peerlist.io/tss921091
 
-✉️###Gmail- tanujasawant296@gmail.com
+✉️ Gmail- tanujasawant296@gmail.com
 
-📄 ###Know about my experiences [https://drive.google.com/file/d/16GDY9bqG366SVdKqNE3xA84d-_K4hoLj/view?usp=drivesdk](https://drive.google.com/file/d/16GDY9bqG366SVdKqNE3xA84d-_K4hoLj/view?usp=drivesdk)
+📄 Know about my experiences [https://drive.google.com/file/d/16GDY9bqG366SVdKqNE3xA84d-_K4hoLj/view?usp=drivesdk](https://drive.google.com/file/d/16GDY9bqG366SVdKqNE3xA84d-_K4hoLj/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
